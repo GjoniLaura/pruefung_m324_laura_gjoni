@@ -1,1 +1,1 @@
-# pruefung_m324_laura_gjoni
+# Prüfung M324
